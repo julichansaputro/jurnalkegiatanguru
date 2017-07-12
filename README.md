@@ -1,0 +1,2 @@
+# jurnalkegiatanguru
+file html juranlkegiatanguru
